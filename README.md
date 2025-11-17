@@ -15,6 +15,8 @@ XERXES、ALIBABA、gorgeous、ARCHER、SPHINX、HANGING GARDEN、sinbad、等等
 
 有需要可与我联系：tg：@jjjsh123
 
+<img width="344" height="704" alt="截屏2025-11-17 18 55 27" src="https://github.com/user-attachments/assets/10d8ca8f-1209-416e-9719-f4fdeaf32f2d" />
+
 
 ![1707242073339330](https://github.com/user-attachments/assets/895b8ae1-91ba-4700-970f-1a50268214d2)
 
