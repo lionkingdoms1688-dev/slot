@@ -11,6 +11,11 @@ slots游戏介绍：
 
 XERXES、ALIBABA、gorgeous、ARCHER、SPHINX、HANGING GARDEN、sinbad、等等
 
+体验地址：http://39.101.65.212:9988/
+
+有需要可与我联系：tg：@jjjsh123
+
+
 ![1707242073339330](https://github.com/user-attachments/assets/895b8ae1-91ba-4700-970f-1a50268214d2)
 
 ![1707242089732343](https://github.com/user-attachments/assets/3cf85018-f4e0-4713-9745-8275980d63b6)
