@@ -1,4 +1,5 @@
-# slot
+# slot 老虎机 竖版
+棋牌游戏
 印度Rummy/印度棋牌源码/印度slots源码/印度游戏开发!
 
 印度Rummy,代码是由Yootao共享过来的,真正的赌场游戏刺激触手可及！在您最喜欢的老虎机中感受大赢的兴奋！您可以在这里找到所有精彩的赌场老虎机游戏和亚洲主题赌场老虎机游戏：Let’s Party、Super Wicked Blast、Gorgeous Cleopatra、Rising Medusa、Egyptian Fantasy、Speedy Fire、Sushi Lover、Power of Dragon、Fortune Gong 以及更多每周都会添加最受欢迎的老虎机游戏。所有赌场老虎机游戏都是免费的。还有这么多有趣的功能，让你更幸运。所有功能和免费老虎机奖励共同打造终极和最佳老虎机游戏！
